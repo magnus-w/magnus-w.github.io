@@ -10,4 +10,14 @@ De åkte in mot stadskärnan och nu bestod kvarteren för första gången av byg
 
 En äldre, skallig man i vit, stärkt skjorta, väst i mörkröd brokad och en lång, nattsvart kjol hälsade välkommen på brett dalmål. Han vände sig om mot en klassisk gammal brevduve-hylla och tog ned en fysisk nyckel från en krok framför ett av facken. "Bry dig inte om bagaget, det tar vi hand om", sa han och räckte över nyckeln. Den var kedjad till en stor mässingknopp.
 
-Conciergen knäppte med fingrarna och en bagagevagn rullade fram till Chris, som ställde sin duffelbag på vagnen. Den surrade iväg mot väggen där en skjutdörr öppnades och avslöjade en egen hiss. "Låt mig ge dig den obligatoriska orienteringen innan du går till rummet. Det går snabbt."
+Conciergen knäppte med fingrarna och en bagagevagn rullade fram till Chris, som ställde sin duffelbag på vagnens översta hyllan. Den surrade iväg mot väggen där en skjutdörr öppnades och avslöjade en egen miniatyrhiss där bagagevagnen precis passade in. "Låt mig ge dig den obligatoriska orienteringen innan du går till rummet. Det går snabbt."
+
+Chris följde conciergen genom ett par svängdörrar, med plyschliknande kanter för att dämpa ljudet när de möttes, in till en stor salong med två våningar högt i tak, kristallkronor och höga fönster i djupa nischer med träpanel. I mitten av lokalen fanns ett långt bord med stolar på vardera sidan och en rad läslampor med gröna glasskärmar mellan platserna.
+
+Conciergen pekade på de mindre skrivbord som stod utplacerade runt om långbordet. För tillfället var bara ett av dem ockuperade. En ung kvinna satt och skrev i ett anteckningsblock i skenet från sin laptop. "Våra gäster har fri tillgång till arbetsplatserna, det är bara att boka i appen eller säga till vid front desk."
+
+"Men det sitter också folk här som inte bor på hotellet?" frågade Chris.
+
+"Ja, det är ungefär fifty-fifty. Lokala firmor som downsizade sina kontor efter pandemin eller startups som inte har några."
+
+Chris följde conciergens högklackade till salens slut där franska dörrar ledde in till ett mysigt krypin som förde tankarna till en fransk restaurant/bar på slutet av 1800-talet - fin de siecle-stil med röd plysch och medaljongtapeter, jugendsnirkliga snickerier och dämpad belysning. Det doftade anis från absinth-karafferna och en lång bartender stod och torkade glas bakom disken iklädd förkläde och skägg.
