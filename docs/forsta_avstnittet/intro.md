@@ -1,0 +1,13 @@
+# Intro
+
+> Chris anländer till staden.
+
+Regndroppar rann i strömmar snett bakåt av fartvinden och genom strilarna skymtade de svarta vågorna på sjön de färdades längs. Så svängde rälsen och den steniga stranden ersattes av tallskog. De blurrade raderna av stammar glesnade för att lämna plats åt ett industriområde (med skamfilade aluminiumfasader med flagnande färg) som i sin tur avlöstes av ett nybyggt villaområde där taken var täckta av solpaneler (och de också stod i trädgårdarna som mörka, blanka piskställningar). De enda ljuspunkterna i den mörka vagnen var skärmarna på de få stolsryggar där det satt passagerare framför. Hälften arbetade och hälften streamade avsnitt.
+
+Bebyggelsen tätnade, tvåvåningshus i trä och sten med lägenheter och strax åkte ut på en bro som passerade över en å mitt i stan och i högerkurvan efter bron började tåget bromsa in. När de stannat klev Chris ned på perrongen och fällde upp neoprenkavajens krage. Men regnet hade övergått i ett duggande som var mer som att gå genom ett moln av fukt. Genom en ankomsthall/reesecntrum med glasade vägger som fick det att se ut som ett akvarium och ut på andra sidan där en shuttle stod och väntade. Inga andra passagerare klev ombord på den, men Chris kände sig ändå självmedveten över att säga sin adress högt efter att ha blivit tillfrågad av högtalaren (ur/från en högtalare.)
+
+De åkte in mot stadskärnan och nu bestod kvarteren för första gången av byggnader med tre våningar. Shuttlen körde lite långsammare än annan trafik i sin egen högerfil, men det var inte långt till destinationen och snart var de nere vid ån, följde den några hundra meter, svängde upp höger för en brant backe och direkt vänster på en smal gränd och stannade framför en tegelbyggnad från det förrförra århundrandet. En halvtrappa ledde upp från gatan till en altan/terass lika bred som husets kortsida och bakom glasdörrar med snirkliga ornament på blyinfattade rutor låg den tomma receptionen. Chris kunde inte stoppa/släcka en minnesbild/association från/till Barton Fink.
+
+En äldre, skallig man i vit, stärkt skjorta, väst i mörkröd brokad och en lång, nattsvart kjol hälsade välkommen på brett dalmål. Han vände sig om mot en klassisk gammal brevduve-hylla och tog ned en fysisk nyckel från en krok framför ett av facken. "Bry dig inte om bagaget, det tar vi hand om", sa han och räckte över nyckeln. Den var kedjad till en stor mässingknopp.
+
+Conciergen knäppte med fingrarna och en bagagevagn rullade fram till Chris, som ställde sin duffelbag på vagnen. Den surrade iväg mot väggen där en skjutdörr öppnades och avslöjade en egen hiss. "Låt mig ge dig den obligatoriska orienteringen innan du går till rummet. Det går snabbt."
